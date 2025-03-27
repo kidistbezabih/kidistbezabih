@@ -23,7 +23,7 @@
 ---
 
 ### 📫 **Let's Connect!**
-💼 [LinkedIn](www.linkedin.com/in/kidist-bezabih)
+💼 [LinkedIn](https://www.linkedin.com/in/kidist-bezabih/)
 
    
 🚀 **"Code, Learn, and Build for Impact!"**
